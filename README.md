@@ -27,3 +27,5 @@ Please follow the below format
 - Place tray in oven at x deg (fan forced)
     - Prepare Icing
 ```
+
+There is also the expectation that images are to be provided and stored within the Photo_Storage folder, using the naming conventions outlined within the readme file there.
