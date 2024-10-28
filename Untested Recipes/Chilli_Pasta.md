@@ -1,5 +1,7 @@
 # Chili Pasta
 
+`` Photo needs to go here ``
+
 > Recipe made by Adam Ragusea [Link to Recipe :)](https://www.youtube.com/watch?v=fFCqW6VwtKQ)
 
 ## Ingredients
@@ -42,5 +44,3 @@
     - Stir in chili paste
     - Taste for seasoning
 - Eat!
-
-``` Photo needs to go here ```
