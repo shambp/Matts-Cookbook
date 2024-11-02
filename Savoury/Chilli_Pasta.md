@@ -7,11 +7,12 @@
 ## Ingredients
 
 - 2 big chicken breasts
-- 225g pasta (go with your gut man)
+- 225g pasta (chunkier pastas are best)
 - 2 pots of cherry tomatoes
-- 2 shallots (Can substitute for a mild onion)
+- 1 small onion (can do 2 shallots)
 - 1 orange
 - crushed Calabrian chili paste or another mild chili paste/oil
+      - I do 3 heaped teaspoons of chilli oil
 - a few garlic cloves
 - a few sprigs of parsley
 - butter (can skip this ngl)
