@@ -11,7 +11,7 @@
 - 1 pint cherry or grape tomatoes
 - 2 shallots (Can substitute for a mild onion)
 - 1 orange
-- crushed Calabrian chili paste or another mild chili paste (I used 2-3 huge heaped spoonfuls)
+- crushed Calabrian chili paste or another mild chili paste/oil
 - a few garlic cloves
 - a few sprigs of parsley
 - butter (can skip this ngl)
