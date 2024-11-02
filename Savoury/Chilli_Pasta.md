@@ -3,7 +3,7 @@
 ### Notes
 Needs to be a bit saucier, add 2 pots of cherry tomatoes
 
-![alt text](../../Photo_Storage/Chilli_Pasta.jpg)
+[alt](../Photo_Storage/Chilli_Pasta.jpg)
 
 > Recipe made by Adam Ragusea [Link to Recipe :)](https://www.youtube.com/watch?v=fFCqW6VwtKQ)
 
