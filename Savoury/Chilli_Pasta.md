@@ -1,9 +1,6 @@
 # Chili Pasta
 
-### Notes
-Needs to be a bit saucier, add 2 pots of cherry tomatoes
-
-[](../Photo_Storage/Chilli_Pasta.jpg)
+![alt text](../Photo_Storage/Chilli_Pasta.jpg)
 
 > Recipe made by Adam Ragusea [Link to Recipe :)](https://www.youtube.com/watch?v=fFCqW6VwtKQ)
 
