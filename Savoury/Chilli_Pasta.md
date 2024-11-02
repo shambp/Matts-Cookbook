@@ -1,6 +1,9 @@
 # Chili Pasta
 
-`` Photo needs to go here ``
+### Notes
+Needs to be a bit saucier, add 2 pots of cherry tomatoes
+
+![alt text](../../Photo_Storage/Chilli_Pasta.jpg)
 
 > Recipe made by Adam Ragusea [Link to Recipe :)](https://www.youtube.com/watch?v=fFCqW6VwtKQ)
 
@@ -8,7 +11,7 @@
 
 - 2 big chicken breasts
 - 225g pasta (go with your gut man)
-- 1 pint cherry or grape tomatoes
+- 2 pots of cherry tomatoes
 - 2 shallots (Can substitute for a mild onion)
 - 1 orange
 - crushed Calabrian chili paste or another mild chili paste/oil
