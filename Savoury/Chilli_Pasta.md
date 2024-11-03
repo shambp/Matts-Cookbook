@@ -3,18 +3,20 @@
 ![alt text](Chilli_Pasta.jpg)
 
 > Recipe made by Adam Ragusea [Link to Recipe :)](https://www.youtube.com/watch?v=fFCqW6VwtKQ)
+>
+> This recipe feeds ~2 people
 
 ## Ingredients
 
-- 2 big chicken breasts
-- 225g pasta (chunkier pastas are best)
-- 2 pots of cherry tomatoes
+- 1 Chicken Breast
+- 100g-ish pasta (chunkier pastas are best)
+- 1 pots of cherry tomatoes
 - 1 small onion (can do 2 shallots)
 - 1 orange
 - crushed Calabrian chili paste or another mild chili paste/oil
-      - I do 3 heaped teaspoons of chilli oil
-- a few garlic cloves
-- a few sprigs of parsley
+      - I do 2 heaped teaspoons of chilli oil
+- Garlic
+- Parsley
 - butter (can skip this ngl)
 
 ## Method
