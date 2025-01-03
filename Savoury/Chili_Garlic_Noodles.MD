@@ -1,23 +1,22 @@
 # Chili Garlic Noodles
 
-` Photo here `
-
 > Credit to Ian Fujimoto
 
-for 1ish people (untested)
+for 2ish meals
 
 ## Ingredients
 
-2cloves garlic
-half a knob of garlic
-2 spring onions
-chilli flakes
-2 tbsp soy sauce
-1 tbsp black vinegar
-1 tbsp sugar
-sesame seeds (just a good amount is fine)
-500g Ground Pork
-2 portions of a thinner noodle
+- 2 cloves garlic
+- half a knob of garlic
+- 1 bunch spring onions
+- chilli flakes
+-2 tbsp soy sauce
+- 1 tbsp black vinegar
+- 1 tbsp sugar
+- sesame seeds (just a good amount is fine)
+- 500g Ground Pork
+- 2 portions of a thinner noodle
+  - I really like using rice at the moment
 
 ## Method
 - Mince Garlic, Grate Ginger and slice spring onions
