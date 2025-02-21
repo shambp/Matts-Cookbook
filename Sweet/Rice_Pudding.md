@@ -6,7 +6,7 @@
 - 500mlish oat milk
 - 100g medium grain rice
 - pinch of salt
-- 55g white sugar
+- 50g white sugar
 - some vanilla
 - cinnamon
 
