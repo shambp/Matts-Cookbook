@@ -18,6 +18,7 @@
     - I love roasted veggies with this
     - If ur a huge miso fan some miso soup on the side definitely wouldn't hurt
     - Rice is obviously also a banger for this to give the dish some more substance
+    - etc
 
 > Halve the marinade amounts if you aren't going to use it with your veggies
 
@@ -32,10 +33,12 @@
     - 1 tsp sesame oil
 - Whisk to combine and throw your salmon in
     - let it sit for about 3 hours
+        - Letting it sit for a bit longer is fine, you dont have to be perfect
 - After this waiting period preheat your oven to 180c fan forced and get your side dishes ready
     - Great time to get some rice going
     - get your veggies sorted
-    - also would be yum for some miso soup on the side if that is your thing
+    - aGet your Miso soup 
+    - etc
 - After preheating
     - If you are using roasted veggies like carrots or broccolini, throw them in 15 minutes before you intend to add the salmon
     - Bake your salmon for 15ish minutes or until your fish is done to your preferred donesness
