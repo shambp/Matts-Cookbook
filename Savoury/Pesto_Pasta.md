@@ -1,4 +1,4 @@
-# Chilli Pesto Pasta
+# Pesto Pasta
 
 > my recipe, probably a million other people that have come up with this genius idea before tho, recipe feeds about 2 people, adjust accordingly
 
