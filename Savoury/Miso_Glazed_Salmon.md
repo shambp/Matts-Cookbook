@@ -1,6 +1,6 @@
 # Title
 
-> Developed by Alyssa Rivers[link to recipe.](https://therecipecritic.com/miso-glazed-salmon/)
+> Developed by Alyssa Rivers. [link to recipe :3](https://therecipecritic.com/miso-glazed-salmon/)
 
 ## Ingredients
 
@@ -12,13 +12,17 @@
 - 1 tbsp Brown Sugar
 - 1 tbsp rice vinegar
 - 1 tsp sesame oil
-- Some veggies of your choice
-    - huge fan of brocoli and carrot in this
-        - We will be using some of the marinade to glaze these veggies
+- Side dishes of your choice
+    - Love getting some broccolini or carrots into the mix, get to use the marinate to glaze these guys in the oven
+    - If ur a huge miso fan some miso soup on the side definitely wouldn't hurt
+    - Rice is obviously also a banger for this to give the dish some more substance
+
+> Halve the marinade amounts if you aren't going to use it with your veggies
 
 ## Method
 - De-skin (if needed) Salmon and season
-- Grab a small bowel and add in your
+    - Also a good idea to get them in 4 nice, even fillets
+- Grab a small bowl and add in your
     - 1/4 cup miso
     - 2 tbsp soy sauce
     - 1 tbsp brown sugar
