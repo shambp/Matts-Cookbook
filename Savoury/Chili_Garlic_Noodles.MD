@@ -16,7 +16,7 @@ for 2ish meals
 - sesame seeds (just a good amount is fine)
 - 500g Ground Pork
 - 2 portions of a thinner noodle
-  - I really like using rice at the moment
+  - Also super nice as a rice dish, is definitely my preference since I can make rice pudding after with the leftovers :)
 
 ## Method
 - Mince Garlic, Grate Ginger and slice spring onions
