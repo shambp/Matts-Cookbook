@@ -5,15 +5,17 @@
 ## Ingredients
 
 - 500ish grams of Salmon
-- 1/4 cup miso paste
-    - white and red are super nice, but I prefer red :)
-- 2 tbsp Soy Sauce
+- 2tbsp cup miso paste
+    - white and red are super nice
+        - white will be a bit milder
+        - red is my personal preference.
+- 1 tbsp Soy Sauce
     - I like to use Tamari
-- 1 tbsp Brown Sugar
-- 1 tbsp rice vinegar
-- 1 tsp sesame oil
+- 1/2 tbsp Brown Sugar
+- 1/2 tbsp rice vinegar
+- 1/2 tsp sesame oil
 - Side dishes of your choice
-    - Love getting some broccolini or carrots into the mix, get to use the marinate to glaze these guys in the oven
+    - I love roasted veggies with this
     - If ur a huge miso fan some miso soup on the side definitely wouldn't hurt
     - Rice is obviously also a banger for this to give the dish some more substance
 
@@ -35,6 +37,8 @@
     - get your veggies sorted
     - also would be yum for some miso soup on the side if that is your thing
 - After preheating
+    - If you are using roasted veggies like carrots or broccolini, throw them in 15 minutes before you intend to add the salmon
     - Bake your salmon for 15ish minutes or until your fish is done to your preferred donesness
         - Optionally, you can stop a few minutes before its done, crank the grill and brush it with some of the leftover marinade
+        - Keep in mind you literally CANNOT overcook salmon like ever, if you are not confident it is fine to air on the side of overcooked
 - Plate and eat!
