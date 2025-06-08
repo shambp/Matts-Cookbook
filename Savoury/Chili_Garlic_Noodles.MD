@@ -8,7 +8,7 @@ for 2ish meals
 
 - 2 cloves garlic
 - half a knob of ginger
-  - I am going to be so real, I just buy the cold pressed stuff and put in a shitload, tastes just as good
+  - just use a glob of the cold pressed stuff if you cba
 - 1 bunch spring onions
 - chilli flakes
 - 2 tbsp soy sauce
